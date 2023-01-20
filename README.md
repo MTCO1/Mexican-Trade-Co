@@ -1,2 +1,2 @@
 # Mexican-Trade-Co
-Specialist in Impor and Export
+Specialist in Import and Export Company
